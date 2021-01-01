@@ -1,1 +1,0 @@
-# wmajor.github.io
